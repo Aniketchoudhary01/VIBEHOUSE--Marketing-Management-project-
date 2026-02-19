@@ -1,1 +1,1 @@
-# VIBEHOUSE--Marketing-Management-project-
+# VIBEHOUSE--Marketing-Management-project
